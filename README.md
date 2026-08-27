@@ -48,6 +48,6 @@ Desenvolvimento Front-end e Back-end
 Busco evoluir constantemente como desenvolvedor, adquirir experiência profissional e participar de projetos onde eu possa aplicar meus conhecimentos, aprender com outros profissionais e contribuir para a criação de soluções inovadoras.
 
 📫 Entre em contato
-💼 LinkedIn: [seu perfil]
-📧 E-mail: [seu e-mail]
-📸 Instagram: [seu perfil]
+💼 LinkedIn: www.linkedin.com/in/jeankevinfloresmarzo
+📧 E-mail:jeanmarzo90@gmail.com
+📸 Instagram:jean.marzo
