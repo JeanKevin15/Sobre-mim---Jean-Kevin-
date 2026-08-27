@@ -1,5 +1,3 @@
-# Sobre-mim---Jean-Kevin-
-
 Olá! Eu sou o Jean Kevin.
 
 Estudante de Análise e Desenvolvimento de Sistemas (ADS), apaixonado por tecnologia, programação e criação de soluções digitais.
